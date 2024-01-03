@@ -37,3 +37,10 @@ NB: The process outlined below targets the small scale beekeeper who relies on d
 - After cutting off the combs replace all the frames in their right position in the hive .
 - Cover the hive with its cover 
 - Place the hive back to its position
+
+
+
+
+<br><br><br>
+
+## N.V.A
