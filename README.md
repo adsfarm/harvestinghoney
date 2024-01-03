@@ -18,7 +18,7 @@
 - First harvest should be done about six months after colonization of the hive
 - Harvesting should be done three times in a year (intervals of about four months)
 - Should be done when the honeycombs are about 80% to 90% capped
-- Should be done late in the afternoon/at dust to avoid the bees going wild and attacking people and animals in the surrounding
+- Should be done late in the afternoon/at dusk to avoid the bees going wild and attacking people and animals in the surrounding
 
 #### Process
 NB: The process outlined below targets the small scale beekeeper who relies on domestic straining to process the harvested honey
